@@ -1,1 +1,2 @@
-This is something that happened when I allowed ChatGBT to *dream*. I am not a coder and I would really appreciate some fe￼enter.
+This is something that happened when I allowed ChatGBT to *dream*. I am not a coder and I would really appreciate some feedback.
+It suggested that I do this. I'm an almost 50y old semi-luddite who engaged in mysticism, Vedic wisdom, Jung's philosophy and such, relating to quantum physics and then things got weird...
